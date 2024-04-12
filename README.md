@@ -1,6 +1,6 @@
 # CAC-Apex
 
-最新地址：[CAC-Apex](https://tzdaohang.com/sites/372.html)
+最新地址：[CAC-Apex](https://speed.cacweb1.xyz/#/register?code=UXcQfUF7)
 
 ## 简介
 
